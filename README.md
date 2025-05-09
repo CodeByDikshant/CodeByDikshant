@@ -17,9 +17,8 @@
 - **Open-source contributions**: Particularly those that align with AI and ML applications.
 
 ## 📫 How to reach me ...
-- Email: dikshantvashist@example.com
-- LinkedIn: [Dikshant Vashist](https://www.linkedin.com/in/dikshantvashist)
-- Twitter: [@dikshantvashist](https://twitter.com/dikshantvashist)
+- Email: Dikshantvash12@gmail.com 
+- Instagram : https://www.instagram.com/dikshant_.1412/profilecard/?igsh=ZXZjcWZvaWg5d3No
 
 ## 😄 Pronouns: He/Him
 
